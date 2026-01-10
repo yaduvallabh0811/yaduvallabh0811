@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...exploring computer science & its new emerging technologies
 - 🌱 I’m currently learning ...languages those used for AI&Ml
 - 💞️ I’m looking to collaborate on ...learning & exploring AI&ML
-- 📫 How to reach me ...yaduvallabh0811@icloud.com,www.linkedin.com/in/
+- 📫 How to reach me ...yaduvallabh0811@gmail.com,www.linkedin.com/in/
 yaduvallabh0811
 ,  www.instagram.com/yaduvallabh0811
 
